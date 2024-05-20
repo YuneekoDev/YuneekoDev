@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @YuneekoDev
+- 👀 I’m interested in developping
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on Unity
+- 📫 How to reach me Discord : realyuneeko
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: i collaborate a lot with @TehNoobieGD
